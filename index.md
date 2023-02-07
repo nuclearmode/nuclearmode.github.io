@@ -1,6 +1,6 @@
-# undefined creative juices rn because i'm spent on building a game engine to build the game
+# lots of creative juices rn because i m doing story and aesthetics for the game
 
-u can def follow [@kootoopas](https://twitter.com/kootoopas) or [@nuclearmode](https://twitter.com/nuclearmode) on twitter for dev updates and tasty eyecandy stuff tho
+u can def follow [@kootoopas](https://twitter.com/kootoopas) or [@nuclearmode](https://twitter.com/nuclearmode) on twitter for dev updates and tasty eyecandy stuff
 
 ## ::devdump
 
