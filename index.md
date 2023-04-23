@@ -1,6 +1,6 @@
 # lots of creative juices rn because i m doing story and aesthetics for the game
 
-u can def follow [@kootoopas](https://twitter.com/kootoopas) or [@nuclearmode](https://twitter.com/nuclearmode) on twitter for dev updates and tasty eyecandy stuff
+u can def follow [@kootoopas](https://twitter.com/kootoopas) or [@nuclearmodeg](https://twitter.com/nuclearmodeg) on twitter for dev updates and tasty eyecandy stuff
 
 ## ::devdump
 
