@@ -1,9 +1,12 @@
 Working on releasing the gamejolt demo for Birth From Above
 
-###### devlog linx
+##### devlog linx
 x
+
 [@kootoopas](https://x.com/kootoopas)
+
 [@birthfromabove](https://x.com/birthfromabove)
+
 [@nuclearmodeg](https://x.com/nuclearmodeg)
 
 --- 
