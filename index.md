@@ -1,6 +1,6 @@
-Working on releasing the gamejolt demo for Birth From Above
+Gamejolt demo for Birth From Above @ Q3 2024
 
-##### devlog linx
+##### devlogs
 x
 
 [@kootoopas](https://x.com/kootoopas)
