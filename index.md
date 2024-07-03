@@ -1,11 +1,11 @@
-Gamejolt demo for Birth From Above @ Q3 2024
+Gamejolt demo for Birth From Above in FALL 2024
 
 ##### devlogs
 x
 
 [@kootoopas](https://x.com/kootoopas)
 
-[@birthfromabove](https://x.com/birthfromabove)
+[@birthfromabove](https://x.com/birthfromabove) soon
 
 [@nuclearmodeg](https://x.com/nuclearmodeg)
 
