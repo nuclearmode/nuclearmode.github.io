@@ -1,4 +1,4 @@
-Birth From Above Gamejolt demo in fall 2024
+Birth From Above gamejolt demo fall 2024
 
 ##### devlogs
 x
