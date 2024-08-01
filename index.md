@@ -7,7 +7,7 @@ x
 
 [@birthfromabove](https://x.com/birthfromabove) soon
 
-[@nuclearmodeg](https://x.com/nuclearmodeg)
+[@nuclearmode_](https://x.com/nuclearmode_)
 
 --- 
 
