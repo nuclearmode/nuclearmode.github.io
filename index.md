@@ -5,7 +5,11 @@ x
 
 [@nuclearmode_](https://x.com/nuclearmode_)
 
-[@birthfromabove](https://x.com/birthfromabove) soon
+[@birthfromabove](https://x.com/birthfromabove)
+
+##### life support
+
+[patreon](https://www.patreon.com/nuclearmode)
 
 --- 
 
