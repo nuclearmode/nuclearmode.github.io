@@ -6,11 +6,7 @@ Birth From Above gamejolt demo fall 2024
 
 [@birthfromabove](https://x.com/birthfromabove)
 
-##### life support
-
-[patreon](https://www.patreon.com/nuclearmode)
-
---- 
+---
 
 <sub>(gh: [@kootoopas](https://github.com/kootoopas))</sub>
 
