@@ -4,8 +4,6 @@ Birth From Above gamejolt demo fall 2024
 
 [@nuclearmode_](https://x.com/nuclearmode_)
 
-[@birthfromabove](https://x.com/birthfromabove)
-
 ---
 
 <sub>(gh: [@kootoopas](https://github.com/kootoopas))</sub>
