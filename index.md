@@ -1,8 +1,8 @@
 Birth From Above gamejolt demo Q1 2025
 
-devlogs: [@nuclearmode_](https://x.com/nuclearmode_)
+[devlogs](https://x.com/nuclearmode_)
 
-$ supporting the fight: [ko-fi](https://ko-fi.com/Y8Y519HQUI)
+[$ supporting the fight](https://ko-fi.com/Y8Y519HQUI)
 
 ---
 
