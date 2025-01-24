@@ -6,7 +6,7 @@ Birth From Above gamejolt demo Q1 2025
 
 ---
 
-<a href='https://ko-fi.com/Y8Y519HQUI' target='_blank'><img height='36' style='border:0px;height:36px;' src='https://storage.ko-fi.com/cdn/kofi6.png?v=6' border='0' alt='Buy Me a Coffee at ko-fi.com' /></a>
+[support the fight](https://ko-fi.com/Y8Y519HQUI)
 
 <sub>(gh: [@kootoopas](https://github.com/kootoopas))</sub>
 
