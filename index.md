@@ -2,7 +2,7 @@ Birth From Above gamejolt demo Q2 2025
 
 [devlogs](https://x.com/nuclearmode_)
 
-[$ support the fight](https://ko-fi.com/Y8Y519HQUI)
+[$ kofi (support the fight)](https://ko-fi.com/Y8Y519HQUI)
 
 ---
 
