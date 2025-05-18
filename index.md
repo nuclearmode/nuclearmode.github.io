@@ -1,6 +1,6 @@
-Birth From Above gamejolt demo Q2 2025
+Birth From Above demo 2026
 
-[devlogs](https://x.com/nuclearmode_)
+[devlogs + psp emulator devstreams](https://x.com/nuclearmode_)
 
 [$ kofi (support the fight)](https://ko-fi.com/Y8Y519HQUI)
 
