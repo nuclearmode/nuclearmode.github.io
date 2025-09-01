@@ -2,8 +2,6 @@ Birth From Above demo 2026
 
 [devlogs + psp emulator devstreams](https://x.com/nuclearmode_)
 
-[$ kofi (support the fight)](https://ko-fi.com/Y8Y519HQUI)
-
 ---
 
 
