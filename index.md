@@ -5,7 +5,7 @@ Birth From Above demo 2026
 ---
 
 
-<sub>gh: [[2007heaven]](https://github.com/2007heaven)</sub>
+<sub>[gh: [2007heaven](https://github.com/2007heaven)]</sub>
 
 ![9ipoggj6T](https://user-images.githubusercontent.com/601001/174320109-5a1e8962-ae74-4f61-b95e-774881fd0125.gif)
 
